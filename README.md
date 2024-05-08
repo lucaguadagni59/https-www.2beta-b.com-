@@ -1,2 +1,2 @@
-# https-www.2beta-b.com-
+# https-www.2beta-b.com
 carbon cpu lam
